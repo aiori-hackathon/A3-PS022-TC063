@@ -13,4 +13,4 @@
 
 ## 🎬 Team Introduction Video
 
-[▶️ Watch Our Team Introduction Video on YouTube](YOUR_YOUTUBE_VIDEO_LINK_HERE)
+[▶️ Watch Our Team Introduction Video on YouTube](https://youtu.be/gbcRVjXw_6M?si=isXydumQl-FCuAOh)
